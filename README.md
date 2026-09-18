@@ -229,7 +229,7 @@ All activities in this repository were performed only on systems and networks I 
 ## 🔗 Links
 
 - 🌐 [Networkwalks](https://networkwalks.com)
-- 💼 [LinkedIn — Elza Chepkemoi](**[https://www.linkedin.com/in/samuel-setonji-kugbe-416733233/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BVg1DgCNXTKWgQsckJZJXiA%3D%3D]**
+- 💼 [LinkedIn — KUGBE SAMUEL](**[https://www.linkedin.com/in/samuel-setonji-kugbe-416733233/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BVg1DgCNXTKWgQsckJZJXiA%3D%3D]**
 )
 
 ---
